@@ -3,5 +3,7 @@
 - 🧠 Computer engineering student
 - 🌱 I’m currently learning Java and VHDL
   
-:Globe Connect with me
+🌐 Connect with me:
+(www.linkedin.com/in/ruhani-kareer)  
+
   
