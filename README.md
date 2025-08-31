@@ -7,7 +7,6 @@
 -  I’m currently learning Java
   
 🌐 **Connect with me:**
-
 www.linkedin.com/in/ruhani-kareer  
 
 💻 **Tech Stack**
