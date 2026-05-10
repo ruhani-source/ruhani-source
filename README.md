@@ -4,7 +4,7 @@
 -  Computer engineering student
   
 🚀**What I'm Up To**
--  I’m currently learning Java
+-  I’m currently learning about cybersecurity
   
 🌐 **Connect with me:**
 www.linkedin.com/in/ruhani-kareer  
