@@ -7,7 +7,7 @@
 -  I’m currently learning about cybersecurity
   
 🌐 **Connect:**
-www.linkedin.com/in/ruhani-kareer  
+- www.linkedin.com/in/ruhani-kareer  
 
 💻 **Tech Stack**
 - Languages: C++, Python, VHDL, Java
