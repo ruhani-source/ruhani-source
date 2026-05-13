@@ -6,7 +6,7 @@
 🚀**What I'm Up To**
 -  I’m currently learning about cybersecurity
   
-🌐 **Connect with me:**
+🌐 **Connect:**
 www.linkedin.com/in/ruhani-kareer  
 
 💻 **Tech Stack**
