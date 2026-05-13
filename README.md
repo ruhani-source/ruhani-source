@@ -10,5 +10,5 @@
 - www.linkedin.com/in/ruhani-kareer  
 
 💻 **Tech Stack**
-- Languages: C++, Python, VHDL, Java
+- Languages: C++, Python, VHDL, JavaScript
   
