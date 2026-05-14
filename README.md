@@ -5,8 +5,8 @@
 🌷I enjoy tennis, swimming, and listening to music  
 
 ### Let's Connect:
-📫Email: ruhanikareer5@gmail.com 
-🔗Linkedin: 
+📫Email: ruhanikareer5@gmail.com   
+🔗Linkedin: https://www.linkedin.com/in/ruhani-kareer/ 
 
 
   
