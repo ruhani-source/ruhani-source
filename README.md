@@ -2,7 +2,7 @@
 
 :mortar_board: Computer engineering student  
 🏫 Concordia University  
-🌷I enjoy tennis, swimming, and listening to music  
+🌷I enjoy tennis, pixel art, and listening to music  
 
 ### Let's Connect:
 📫Email: ruhanikareer5@gmail.com   
