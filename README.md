@@ -4,9 +4,5 @@
 🏫 Concordia University  
 🌷 
 
-### Let's Connect:
-📫Email: ruhanikareer5@gmail.com   
-🔗Linkedin: https://www.linkedin.com/in/ruhani-kareer/ 
-
 
   
